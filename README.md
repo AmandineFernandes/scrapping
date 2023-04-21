@@ -1,2 +1,4 @@
 # scrapping
 
+fuck la police 
+
